@@ -2,7 +2,7 @@
 - 👀 favourite programming languague 
 - 🌱 ctrl c , ctrl v 
 - 💞️ Andrew Tate fanbase 
-- 📫 CS noob ...
+- 📫 CS noob But Will Turn Pro Quikly ...
 - Dealing with Python in programming and all other snakes in life
 - 
 ![image](https://user-images.githubusercontent.com/113922985/192426346-8e0390a0-d34c-485b-8310-dd9dd3a3c5b4.png)
